@@ -1,5 +1,5 @@
 # Souleymane Traore
-### EDUCATION
+## EDUCATION
 
 **Goucher College - May 2020**
 
