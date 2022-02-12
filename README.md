@@ -5,4 +5,4 @@
 
 *Chemsitry (BA) - Towson, MD*
 
--**Awards:** Dean’s List; Blue and Gold Merit Scholarship; Louise Kelley Prize in Chemistry
+- **Awards:** Dean’s List; Blue and Gold Merit Scholarship; Louise Kelley Prize in Chemistry
